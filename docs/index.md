@@ -1,7 +1,9 @@
 ## Welcome to TCM MAP!
 
 
-### dedicated to ·谢宗万· **慧眼辨真伪    潜心创新知**
+### **Dedicated to ·谢宗万· **
+
+### **慧眼辨真伪    潜心创新知**
 
 
 
